@@ -17,8 +17,7 @@
  #### 2. [SMP N 2 Pancalang](https://dapo.kemdikbud.go.id/) | Kuningan '2017-2019'
    - vice chairman OSIS
  #### 3. [SD N Sindangkempeng](https://sekolah.data.kemdikbud.go.id/) | Kuningan '2012-2017
-
-
+ 
 ---
 
 ### Hobby
